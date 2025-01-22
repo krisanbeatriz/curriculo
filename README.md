@@ -1,1 +1,1 @@
-# curriculo
+# https://krisanbeatriz.github.io/curriculo/
